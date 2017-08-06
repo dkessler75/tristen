@@ -8,3 +8,5 @@
 
 ## My favorite 5K run for 9th grade
 ### The start of the run started with a gun shot, and I was off I knew right off the start that I had started too fast. But I decided to keep on running at the same speed then I would later slow to the point where I was at a cruising pace. The first half of the race I was in first! I thought that I was doing really good, that I could actually finish in first. But half way through one of my team mates caught up to me. Then after that a few more team mates caught up and by the end of the race I was in sixth place. The reason why it was my favorite was because it was the best run I ran that year.
+
+For more information please visit <a href='http://carlisle-high-school-carlisle-iowa.runnerspace.com/'>Carlisle High School Track & Field and Cross Country</a>
